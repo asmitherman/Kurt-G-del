@@ -13,4 +13,3 @@ the afterlife must exist. He belived Islam was a consistant idea of religion
 "open-minded".
  
 Sources: https://en.wikipedia.org/wiki/Kurt_G%C3%B6del
-this is test commit 
